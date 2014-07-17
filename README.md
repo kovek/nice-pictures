@@ -9,4 +9,4 @@ The list might have been updated by now
 Most of the pictures are from imgur, because unlike many websites(for example: flickr), it lets us download its pictures very simply.
 
 
-Enjoy your time looking at very beautiful, and very popular, pictures!
+Enjoy your time looking at very beautiful and popular pictures!
